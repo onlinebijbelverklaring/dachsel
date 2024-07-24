@@ -11,8 +11,6 @@ Dächsel studeerde Theologie aan de Universiteit van Leipzig. In 1847 wordt hij 
 
 Zijn Bijbelverklaring schreef hij in zeven delen tussen 1862 en 1880. Als opzet koos hij voor een doorlopende parafrase. Ds. F.P.L.C. van Lingen bewerkte deze Bijbelverklaring in het Nederlands. Hij kwam tot acht delen, omdat hij bij de tekst van Dachsel gedeelten opnam van tal van andere Duitse en Nederlandse theologen. Deze bijgevoegde verklaringen zijn meestal niet in deze versie opgenomen. 
 
-De teksten zijn inmiddels vrij van auteursrecht en mogen vrij verspreid worden. De online versie bied de mogelijkheid om eenvoudig te kunnen zoeken. Daarnaast is de gedrukte versie niet goedkoop en daardoor bij steeds minder mensen thuis te vinden. We hopen op deze manier meer mensen bekend te maken met deze bijbelverklaring. 
-
 ## Beschikbaarheid
 
 Op dit moment wordt er nog niet gewerkt aan het online zetten van deze bijbelverklaring. Het is de bedoeling om hier media 2025 mee te starten.
