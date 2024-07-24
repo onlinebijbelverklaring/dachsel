@@ -19,4 +19,4 @@ Op dit moment wordt er nog niet gewerkt aan het online zetten van deze bijbelver
 
 Momenteel wordt er hard gewerkt om de bijbelverklaring van Matthew Henry af te ronden.
 
-Wilt u de bijbelverklaring lezen in PDF formaat? Kijk op: (https://theologienet.nl/auteurs/dachsel-karl-august/) 
+Wilt u de bijbelverklaring lezen in PDF formaat? Kijk op: [https://theologienet.nl/auteurs/dachsel-karl-august/](https://theologienet.nl/auteurs/dachsel-karl-august/) 
