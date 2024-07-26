@@ -37,7 +37,8 @@ theme:
 #    - navigation.instant.prefetch
 #    - navigation.instant.progress
 #    - navigation.expand
-#    - navigation.tabs
+    - navigation.tabs
+    - navigation.sections
     - navigation.tabs.sticky
     - toc.follow
     - search.suggest
