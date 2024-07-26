@@ -42,6 +42,7 @@ theme:
     - search.suggest
     - search.highligt
     - search.share
+    - content.tabs
     - content.tabs.link
     - content.code.annotatioin
     - content.code.copy
