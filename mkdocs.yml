@@ -106,6 +106,7 @@ plugins:
 # Navigation menu
 nav:
   - Welkom: 'index.md'
+  - Levensschets: 'levensschets.md'
 #  - 'Genesis': 
 #    - 'Genesis': 'Genesis/index.md'
 #    - 'Genesis 1': 'Genesis/Genesis1/index.md'
