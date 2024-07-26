@@ -1,4 +1,4 @@
-y{#-
+{#-
   This file was automatically generated - do not edit
 -#}
 {% macro render_content(nav_item, ref = nav_item) %}
@@ -19,7 +19,11 @@ y{#-
     {% if first.children %}
       {{ render(first, ref) }}
     {% else %}
-      <li class="md-tabs__item md-tabs__item--active"><a href="https://onlinebijbelverklaring.nl/" class="md-tabs__link">Welkom</a></li>
+      <li class="{{ class }}">
+        <a href="{{ first.url | url }}" class="md-tabs__link">
+          {{ render_content(first, ref) }}
+        </a>
+      </li>
     {% endif %}
   {% else %}
 <li class="md-tabs__item md-tabs__item--active"><a href="https://onlinebijbelverklaring.nl/" class="md-tabs__link">Welkom</a></li>    
