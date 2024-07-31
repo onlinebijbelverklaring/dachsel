@@ -281,5 +281,4 @@ a) Deuteronomium 32:4, Markus 7:37
  
 1) God heeft, terwijl Hij de wereld schept, de aarde tot doel en in de aarde de mens en in de mens Israël, en in dit volk van het heil de voleindiging van al het geschapene. De wereldgeschiedenis ligt niet buiten maar binnen de van de eeuwigheid uitlopende en in de eeuwigheid teruglopende kring van de geschiedenis van het heil; daarom staat zij aan de spits van de Thora (wet), het grondboek van de geschiedenis van het heil. 
  
-2) Tien maal lezen wij: "God zei," en zeven maal "God zag." Tien is het getal van de
-volkomenheid en zeven het getal van het verbond. Het scheppingsverhaal predikt ons: én de volstrekte Soevereiniteit van God én de diepe afhankelijkheid van de mens. 
+2) Tien maal lezen wij: "God zei," en zeven maal "God zag." Tien is het getal van de volkomenheid en zeven het getal van het verbond. Het scheppingsverhaal predikt ons: én de volstrekte Soevereiniteit van God én de diepe afhankelijkheid van de mens. 
