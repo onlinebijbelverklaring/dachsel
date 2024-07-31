@@ -1,8 +1,8 @@
 ## Deel I
 I.	Vs. 1 en 2. God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongevormd en onbewoond. 
  
-
-1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a) 
+### Vers 1
+_1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)_
  
 a)	Psalm 33:6; 89:12; 136:5 Hand. 14:15; 17:24 Hebr. 11:3 
 
@@ -20,8 +20,8 @@ Zo wijst ons reeds het eerste Bijbelwoord op het verborgene, het mysterie van he
 
 5) Welk een wijsheid in deze eenvoudige woorden! De wijzen van alle eeuwen hebben nagespeurd, welke de oorsprong van alle dingen geweest is, en de één heeft genoemd enige stofdeeltjes, de ander een groot werelddeel, weer anderen noemden water en gas. Reeds dit eerste woord van de Bijbel geeft het duidelijk bewijs, dat de heilige mannen van God, door de Heilige Geest gesproken hebben. Ook hier voelen wij, dat geloof in Gods Woord de hoogste wetenschap is. 
  
-## Vers 2
-2.	 De aarde, zoals zij door God in een punt van de tijd uit het niet was te voorschijn geroepen, nu was woest en ledig 1) en duisternis was op de afgrond. En de Geest van God 2) zweefde op over de oppervlakte van de wateren 3) heen. 
+### Vers 2
+_2. De aarde, zoals zij door God in een punt van de tijd uit het niet was te voorschijn geroepen, nu was woest en ledig 1) en duisternis was op de afgrond. En de Geest van God 2) zweefde op over de oppervlakte van de wateren 3) heen._
  
 1) In het Hebreeuws "Thohoe waboohoe," woorden, in die taal gebruikt als iets ledigs en vreemds wordt bedoeld; iets, dat nog voor niets geschikt is. Gelijk een embryo in de moederschoot, alzo was de aarde toen nog met watermassa’s omgeven. (2 Petrus. 3:5)
  
@@ -39,8 +39,8 @@ Daarom behoort men dit op de voorgrond te stellen: "Zendt Gij uw Geest uit, zij 
 ## Deel II
 II. Vs. 3-25. In zes dagen vormt God de nog ruwe grondstof van de aarde en richt Hij deze tot een woonplaats in voor haar toekomstige heer, de mens. 
  
- 
-3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven 2 Corinthiërs 4:6) toen Hij zeide:1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9) 
+### Vers 3
+_3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven 2 Corinthiërs 4:6) toen Hij zeide:1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9)_
  
 1) Het spreken van God is altijd de uiting van de innigste en heiligste gedachten van Zijn hart (Psalm. 33:11) en aldus de openbaring, de naar buiten treding in en door het woord, van zijn heilig Wezen, voor zoverre dit door de mens kan gekend en moet erkend worden. 
  
@@ -63,7 +63,8 @@ Wat licht is in natuurlijke zin zegt de voorzichtige man van de echte wetenschap
 Hij, die het licht gezaaid heeft voor de rechtvaardige, die het ontoegankelijk en eeuwig licht bewoont en die het gesproken heeft, dat wie Hem volgt het licht des levens zal hebben; alleen
  
 Hij kan het licht uit zichzelf uitzenden, omdat Hij, in de hoogste en edelste zin van het woord, het licht der wereld is. 
- 
+
+### Vers 4 
 4. En God, die in deze trapsgewijze vorming van de nog ruwe stof aan het toekomstige hoofd van de zichtbare wereld, de mens, gelijk wilde worden, opdat deze Hem weer gelijk worden zou, overzag, als een menselijk werkmeester, het werk van zijn handen en zag het licht, dat het goed was 1) (Psalm. 104:31). Geen half, geen onvolkomen werk, werkt God, noch in het rijk van de natuur, noch in dat van de genade; en God maakte scheiding tussen het licht en tussen de duisternis, 2) d.i. God verordende een regelmatige afwisseling van licht en duisternis, daar Hij het tot hiertoe slechts als ether (fijne lucht) voorhanden licht, op bepaalde tijden zich liet uitzetten en dan weer samentrekken. 
  
 1) Door Mozes wordt hier God voorgesteld zijn werk beschouwende en daarin een welbehagen hebbende. Dit geschiedt echter hierom: opdat wij zouden verstaan dat God niets gedaan heeft, dan met vast beleid en volgens een welberaamd plan. 
@@ -72,8 +73,8 @@ Het licht was goed, omdat Hij het zelf geschapen had. Het woord goed, moet, het 
  
 2) Duisternis is het beeld van zonde en ellende. Er is echter ook een weldoende schaduw, een heilige nacht. Ook de nacht is van de Heere (Psalm. 74:16) 
  
- 
-5. En God noemde 1) het licht dag en de duisternis noemde Hij nacht. Toen was het avond geweest en het was morgen geweest, 2) de eerste dag. 3) Deze berekening, volgens welke de dag met de avond begint, behield het volk van God onder het Oude Verbond; de Joden begonnen alzo iedere nieuwe dag met de zonsondergang van de vorige, niet eerst met middernacht (Leviticus. 23:32). 
+### Vers 5
+    5\. En God noemde 1) het licht dag en de duisternis noemde Hij nacht. Toen was het avond geweest en het was morgen geweest, 2) de eerste dag. 3) Deze berekening, volgens welke de dag met de avond begint, behield het volk van God onder het Oude Verbond; de Joden begonnen alzo iedere nieuwe dag met de zonsondergang van de vorige, niet eerst met middernacht (Leviticus. 23:32). 
  
 1) Het "noemen" is zo veel, als aan iets naar zijn wezen, een bestemming aanwijzen. Hier wordt ons Gods almachtig regeren aangeduid. 
 
@@ -85,8 +86,8 @@ Eerst scheidde God het licht van de duisternis en daarna onderscheidde Hij ook d
  
 Zo is onze zondag reeds gewijd door de schepping van het licht. 
  
- 
-6. a) En God zei, toen het licht in de plaats van de duisternis was getreden, daar zij een uitspansel 1) in het midden van de wateren; en dat make scheiding tussen wateren en wateren. Wij lezen hier de schepping van onze dampkring, welke de wateren boven ons in de wolken ophoudt, totdat ze de dampkring te zwaar geworden, als regen neerdalen. 
+### Vers 6
+   6\. a) En God zei, toen het licht in de plaats van de duisternis was getreden, daar zij een uitspansel 1) in het midden van de wateren; en dat make scheiding tussen wateren en wateren. Wij lezen hier de schepping van onze dampkring, welke de wateren boven ons in de wolken ophoudt, totdat ze de dampkring te zwaar geworden, als regen neerdalen. 
  
 a) Psalm. 104:2; 136:5; 148:4; Spreuken. 8:28.
  
