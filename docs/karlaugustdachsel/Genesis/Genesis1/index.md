@@ -1,5 +1,5 @@
-## Deel I
-I.Vs. 1 en 2. God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongevormd en onbewoond. 
+## Deel I. Vers 1-2 
+God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongevormd en onbewoond. 
  
 ***1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)***
  
@@ -35,8 +35,8 @@ Daarom behoort men dit op de voorgrond te stellen: "Zendt Gij uw Geest uit, zij 
 3) Hoe lang de aarde in deze toestand voortduurde en welke veranderingen onder dat broeien van de Geest in het inwendige plaats hebben gehad, is ons niet geopenbaard. Spreekt de natuurwetenschap van duizendtallen jaren, zij is daarom niet in strijd met de Schrift, doch men vergete niet, dat voor de Heere duizend jaar zijn als één dag. Evenmin weten wij, wat in de hemelse wereld voorviel, wanneer en hoe de val van de Engelen heeft plaatsgehad. (Judas 1:6; 2 Petrus. 2:4). 
 
 
-## Deel II
-II. Vs. 3-25. In zes dagen vormt God de nog ruwe grondstof van de aarde en richt Hij deze tot een woonplaats in voor haar toekomstige heer, de mens. 
+## Deel II. Vers 3-25
+In zes dagen vormt God de nog ruwe grondstof van de aarde en richt Hij deze tot een woonplaats in voor haar toekomstige heer, de mens. 
 
 ***3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven (2 Corinthiërs 4:6) toen Hij zeide: 1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9)***
  
