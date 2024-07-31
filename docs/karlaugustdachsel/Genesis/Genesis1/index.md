@@ -1,8 +1,7 @@
 ## Deel I
 I.	Vs. 1 en 2. God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongevormd en onbewoond. 
  
-### Vers 1
-_1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)_
+:   _1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)_
  
 a)	Psalm 33:6; 89:12; 136:5 Hand. 14:15; 17:24 Hebr. 11:3 
 
@@ -20,8 +19,8 @@ Zo wijst ons reeds het eerste Bijbelwoord op het verborgene, het mysterie van he
 
 5) Welk een wijsheid in deze eenvoudige woorden! De wijzen van alle eeuwen hebben nagespeurd, welke de oorsprong van alle dingen geweest is, en de één heeft genoemd enige stofdeeltjes, de ander een groot werelddeel, weer anderen noemden water en gas. Reeds dit eerste woord van de Bijbel geeft het duidelijk bewijs, dat de heilige mannen van God, door de Heilige Geest gesproken hebben. Ook hier voelen wij, dat geloof in Gods Woord de hoogste wetenschap is. 
  
-### Vers 2
-_2. De aarde, zoals zij door God in een punt van de tijd uit het niet was te voorschijn geroepen, nu was woest en ledig 1) en duisternis was op de afgrond. En de Geest van God 2) zweefde op over de oppervlakte van de wateren 3) heen._
+
+:   _2. De aarde, zoals zij door God in een punt van de tijd uit het niet was te voorschijn geroepen, nu was woest en ledig 1) en duisternis was op de afgrond. En de Geest van God 2) zweefde op over de oppervlakte van de wateren 3) heen._
  
 1) In het Hebreeuws "Thohoe waboohoe," woorden, in die taal gebruikt als iets ledigs en vreemds wordt bedoeld; iets, dat nog voor niets geschikt is. Gelijk een embryo in de moederschoot, alzo was de aarde toen nog met watermassa’s omgeven. (2 Petrus. 3:5)
  
@@ -65,7 +64,9 @@ Hij, die het licht gezaaid heeft voor de rechtvaardige, die het ontoegankelijk e
 Hij kan het licht uit zichzelf uitzenden, omdat Hij, in de hoogste en edelste zin van het woord, het licht der wereld is. 
 
 ### Vers 4 
-4. En God, die in deze trapsgewijze vorming van de nog ruwe stof aan het toekomstige hoofd van de zichtbare wereld, de mens, gelijk wilde worden, opdat deze Hem weer gelijk worden zou, overzag, als een menselijk werkmeester, het werk van zijn handen en zag het licht, dat het goed was 1) (Psalm. 104:31). Geen half, geen onvolkomen werk, werkt God, noch in het rijk van de natuur, noch in dat van de genade; en God maakte scheiding tussen het licht en tussen de duisternis, 2) d.i. God verordende een regelmatige afwisseling van licht en duisternis, daar Hij het tot hiertoe slechts als ether (fijne lucht) voorhanden licht, op bepaalde tijden zich liet uitzetten en dan weer samentrekken. 
+!!! 
+
+    4\. En God, die in deze trapsgewijze vorming van de nog ruwe stof aan het toekomstige hoofd van de zichtbare wereld, de mens, gelijk wilde worden, opdat deze Hem weer gelijk worden zou, overzag, als een menselijk werkmeester, het werk van zijn handen en zag het licht, dat het goed was 1) (Psalm. 104:31). Geen half, geen onvolkomen werk, werkt God, noch in het rijk van de natuur, noch in dat van de genade; en God maakte scheiding tussen het licht en tussen de duisternis, 2) d.i. God verordende een regelmatige afwisseling van licht en duisternis, daar Hij het tot hiertoe slechts als ether (fijne lucht) voorhanden licht, op bepaalde tijden zich liet uitzetten en dan weer samentrekken. 
  
 1) Door Mozes wordt hier God voorgesteld zijn werk beschouwende en daarin een welbehagen hebbende. Dit geschiedt echter hierom: opdat wij zouden verstaan dat God niets gedaan heeft, dan met vast beleid en volgens een welberaamd plan. 
  
