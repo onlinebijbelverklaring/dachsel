@@ -39,7 +39,7 @@ Daarom behoort men dit op de voorgrond te stellen: "Zendt Gij uw Geest uit, zij 
 II. Vs. 3-25. In zes dagen vormt God de nog ruwe grondstof van de aarde en richt Hij deze tot een woonplaats in voor haar toekomstige heer, de mens. 
  
 ### Vers 3
-_3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven 2 Corinthiërs 4:6) toen Hij zeide:1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9)_
+- _3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven 2 Corinthiërs 4:6) toen Hij zeide:1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9)_
  
 1) Het spreken van God is altijd de uiting van de innigste en heiligste gedachten van Zijn hart (Psalm. 33:11) en aldus de openbaring, de naar buiten treding in en door het woord, van zijn heilig Wezen, voor zoverre dit door de mens kan gekend en moet erkend worden. 
  
@@ -75,7 +75,7 @@ Het licht was goed, omdat Hij het zelf geschapen had. Het woord goed, moet, het 
 2) Duisternis is het beeld van zonde en ellende. Er is echter ook een weldoende schaduw, een heilige nacht. Ook de nacht is van de Heere (Psalm. 74:16) 
  
 ### Vers 5
-    5\. En God noemde 1) het licht dag en de duisternis noemde Hij nacht. Toen was het avond geweest en het was morgen geweest, 2) de eerste dag. 3) Deze berekening, volgens welke de dag met de avond begint, behield het volk van God onder het Oude Verbond; de Joden begonnen alzo iedere nieuwe dag met de zonsondergang van de vorige, niet eerst met middernacht (Leviticus. 23:32). 
+- 5\. En God noemde 1) het licht dag en de duisternis noemde Hij nacht. Toen was het avond geweest en het was morgen geweest, 2) de eerste dag. 3) Deze berekening, volgens welke de dag met de avond begint, behield het volk van God onder het Oude Verbond; de Joden begonnen alzo iedere nieuwe dag met de zonsondergang van de vorige, niet eerst met middernacht (Leviticus. 23:32). 
  
 1) Het "noemen" is zo veel, als aan iets naar zijn wezen, een bestemming aanwijzen. Hier wordt ons Gods almachtig regeren aangeduid. 
 
@@ -88,7 +88,7 @@ Eerst scheidde God het licht van de duisternis en daarna onderscheidde Hij ook d
 Zo is onze zondag reeds gewijd door de schepping van het licht. 
  
 ### Vers 6
-   6\. a) En God zei, toen het licht in de plaats van de duisternis was getreden, daar zij een uitspansel 1) in het midden van de wateren; en dat make scheiding tussen wateren en wateren. Wij lezen hier de schepping van onze dampkring, welke de wateren boven ons in de wolken ophoudt, totdat ze de dampkring te zwaar geworden, als regen neerdalen. 
+- 6\. a) En God zei, toen het licht in de plaats van de duisternis was getreden, daar zij een uitspansel 1) in het midden van de wateren; en dat make scheiding tussen wateren en wateren. Wij lezen hier de schepping van onze dampkring, welke de wateren boven ons in de wolken ophoudt, totdat ze de dampkring te zwaar geworden, als regen neerdalen. 
  
 a) Psalm. 104:2; 136:5; 148:4; Spreuken. 8:28.
  
