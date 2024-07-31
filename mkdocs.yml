@@ -1,9 +1,9 @@
 # Project information
-site_name: Karl August Dachsel
+site_name: Onlinebijbelverklaring.nl (dachsel preview)
 site_url: https://onlinebijbelverklaring.nl/dachsel/
-site_author: Karl August Dachsel
+site_author: Onlinebijbelverklaring.nl
 site_description: >-
-  De volledige bijbelverklaring van Karl August Dachsel online
+  De volledige bijbelverklaring van Karl August Dachsel online (preview)
 
 # Copyright
 copyright: |
@@ -37,7 +37,7 @@ theme:
 #    - navigation.instant.prefetch
 #    - navigation.instant.progress
 #    - navigation.expand
-#    - navigation.tabs
+    - navigation.tabs
     - navigation.sections
     - navigation.tabs.sticky
     - toc.follow
@@ -109,7 +109,8 @@ nav:
   - Welkom:
     - Welkom: index.md
   - Karl August Dachsel:
-    - Inleiding: karlaugustdachsel/index.md
+    - Index: karlaugustdachsel/index.md
+    - Inleiding: karlaugustdachsel/inleiding.md
     - Oude Testament:
       - Genesis:
         - Genesis: karlaugustdachsel/Genesis/index.md
