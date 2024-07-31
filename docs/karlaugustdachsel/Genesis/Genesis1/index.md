@@ -1,7 +1,7 @@
 ## Deel I
 I.	Vs. 1 en 2. God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongevormd en onbewoond. 
  
-+ _1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)_
+###### _1. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)_
  
 a)	Psalm 33:6; 89:12; 136:5 Hand. 14:15; 17:24 Hebr. 11:3 
 
@@ -20,7 +20,7 @@ Zo wijst ons reeds het eerste Bijbelwoord op het verborgene, het mysterie van he
 5) Welk een wijsheid in deze eenvoudige woorden! De wijzen van alle eeuwen hebben nagespeurd, welke de oorsprong van alle dingen geweest is, en de één heeft genoemd enige stofdeeltjes, de ander een groot werelddeel, weer anderen noemden water en gas. Reeds dit eerste woord van de Bijbel geeft het duidelijk bewijs, dat de heilige mannen van God, door de Heilige Geest gesproken hebben. Ook hier voelen wij, dat geloof in Gods Woord de hoogste wetenschap is. 
  
 
-+ _2. De aarde, zoals zij door God in een punt van de tijd uit het niet was te voorschijn geroepen, nu was woest en ledig 1) en duisternis was op de afgrond. En de Geest van God 2) zweefde op over de oppervlakte van de wateren 3) heen._
+##### _2. De aarde, zoals zij door God in een punt van de tijd uit het niet was te voorschijn geroepen, nu was woest en ledig 1) en duisternis was op de afgrond. En de Geest van God 2) zweefde op over de oppervlakte van de wateren 3) heen._
  
 1) In het Hebreeuws "Thohoe waboohoe," woorden, in die taal gebruikt als iets ledigs en vreemds wordt bedoeld; iets, dat nog voor niets geschikt is. Gelijk een embryo in de moederschoot, alzo was de aarde toen nog met watermassa’s omgeven. (2 Petrus. 3:5)
  
@@ -38,9 +38,9 @@ Daarom behoort men dit op de voorgrond te stellen: "Zendt Gij uw Geest uit, zij 
 ## Deel II
 II. Vs. 3-25. In zes dagen vormt God de nog ruwe grondstof van de aarde en richt Hij deze tot een woonplaats in voor haar toekomstige heer, de mens. 
 
-!!! note ""
+!!! quote ""
 
-    _3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven 2 Corinthiërs 4:6) toen Hij zeide:1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9)_
+    _3. En God, toen Hij, naar zijn vrijmachtig welbehagen besloot de woeste en ledige aarde te vormen en te bevolken-naar de gewone tijdrekening, omstreeks 4000 jaarvóór de geboorte van Christus-maakt allereerst aan de duisternis een einde, en liet het licht voortkomen, die noodzakelijke voorwaarde van elk worden en leven (2 Corinthiërs 4:6) toen Hij zeide: 1) Daar zij licht, 2) en daar werd licht. (Psalm. 33:9)_
  
 1) Het spreken van God is altijd de uiting van de innigste en heiligste gedachten van Zijn hart (Psalm. 33:11) en aldus de openbaring, de naar buiten treding in en door het woord, van zijn heilig Wezen, voor zoverre dit door de mens kan gekend en moet erkend worden. 
  
@@ -65,7 +65,7 @@ Hij, die het licht gezaaid heeft voor de rechtvaardige, die het ontoegankelijk e
 Hij kan het licht uit zichzelf uitzenden, omdat Hij, in de hoogste en edelste zin van het woord, het licht der wereld is. 
 
  
-!!! note ""
+!!! quote ""
 
     4\. En God, die in deze trapsgewijze vorming van de nog ruwe stof aan het toekomstige hoofd van de zichtbare wereld, de mens, gelijk wilde worden, opdat deze Hem weer gelijk worden zou, overzag, als een menselijk werkmeester, het werk van zijn handen en zag het licht, dat het goed was 1) (Psalm. 104:31). Geen half, geen onvolkomen werk, werkt God, noch in het rijk van de natuur, noch in dat van de genade; en God maakte scheiding tussen het licht en tussen de duisternis, 2) d.i. God verordende een regelmatige afwisseling van licht en duisternis, daar Hij het tot hiertoe slechts als ether (fijne lucht) voorhanden licht, op bepaalde tijden zich liet uitzetten en dan weer samentrekken. 
  
@@ -76,7 +76,7 @@ Het licht was goed, omdat Hij het zelf geschapen had. Het woord goed, moet, het 
 2) Duisternis is het beeld van zonde en ellende. Er is echter ook een weldoende schaduw, een heilige nacht. Ook de nacht is van de Heere (Psalm. 74:16) 
  
 
-!!! note ""
+!!! quote ""
 
     5\. En God noemde 1) het licht dag en de duisternis noemde Hij nacht. Toen was het avond geweest en het was morgen geweest, 2) de eerste dag. 3) Deze berekening, volgens welke de dag met de avond begint, behield het volk van God onder het Oude Verbond; de Joden begonnen alzo iedere nieuwe dag met de zonsondergang van de vorige, niet eerst met middernacht (Leviticus. 23:32). 
  
@@ -90,15 +90,18 @@ Eerst scheidde God het licht van de duisternis en daarna onderscheidde Hij ook d
  
 Zo is onze zondag reeds gewijd door de schepping van het licht. 
  
-### Vers 6
-- 6\. a) En God zei, toen het licht in de plaats van de duisternis was getreden, daar zij een uitspansel 1) in het midden van de wateren; en dat make scheiding tussen wateren en wateren. Wij lezen hier de schepping van onze dampkring, welke de wateren boven ons in de wolken ophoudt, totdat ze de dampkring te zwaar geworden, als regen neerdalen. 
+!!! quote ""
+
+    6\. a) En God zei, toen het licht in de plaats van de duisternis was getreden, daar zij een uitspansel 1) in het midden van de wateren; en dat make scheiding tussen wateren en wateren. Wij lezen hier de schepping van onze dampkring, welke de wateren boven ons in de wolken ophoudt, totdat ze de dampkring te zwaar geworden, als regen neerdalen. 
  
 a) Psalm. 104:2; 136:5; 148:4; Spreuken. 8:28.
  
 1) Sommige oud-Joodse en oud-Christelijke schrijvers vertalen het woord door firmament (firmamentum). Ook de Septuaginta gebruikt het woord stere, het woord "firmamentum" én het woord stere, duiden iets vast aan. Het Hebreeuwse woord geeft echter niets anders te kennen, dan een wijduitgespannen ruimte. Calvijn tekent bij deze woorden o.a. aan: Wel weten wij, dat de regen op natuurlijke wijze ontstaat, maar de zondvloed toont genoegzaam, hoe door de onstuimigheid van de wolken deze overweldig zou worden, als de sluizen van de hemelen niet door Gods hand gesloten waren. 
  
  
-7. En God maakte dat uitspansel; ingevolge Zijn zo-even uitgesproken scheppingswoord ontstond het, en Hij maakte scheiding tussen de wateren die a) onder het uitspansel zijn, en tussen de wateren b) die boven het uitspansel 1) zijn. En het was alzo, gelijk God Vs. 6 bevolen had. 
+!!! quote ""
+
+    7. En God maakte dat uitspansel; ingevolge Zijn zo-even uitgesproken scheppingswoord ontstond het, en Hij maakte scheiding tussen de wateren die a) onder het uitspansel zijn, en tussen de wateren b) die boven het uitspansel 1) zijn. En het was alzo, gelijk God Vs. 6 bevolen had. 
  
  
 a) Psalm. 33:7; 136:6 Spreuken. 8:24 
@@ -108,26 +111,34 @@ b) Psalm. 148:4
 1) De wateren beneden worden op de volgende dag in afgesloten bewaarplaatsen verzameld, de wateren daarboven zweven in wolken boven ons en vallen niet neer, maar worden van het uitspansel gedragen; dit nu is geen geringer wonder van de goddelijke almacht, dan toen de wateren van de Rode zee als muren stonden (Ex. 14:22) 
  
  
-8. En God noemde het uitspansel, hetwelk als het dek van een tent over de aarde was uitgespannen hemel, 1) letterlijk hemelen, d.i. lucht en wolkenhemel, onderscheiden van de hemel der hemelen, die God in den beginne had geschapen. Toen was het avond geweest en het was morgen geweest, de tweede dag. 
+!!! quote ""
+
+    8. En God noemde het uitspansel, hetwelk als het dek van een tent over de aarde was uitgespannen hemel, 1) letterlijk hemelen, d.i. lucht en wolkenhemel, onderscheiden van de hemel der hemelen, die God in den beginne had geschapen. Toen was het avond geweest en het was morgen geweest, de tweede dag. 
  
  
 1) Deze "hemelen" zijn wel te onderscheiden van de hemel der hemelen. Stelde God Almachtig straks op de vierde dag in het wolkeloze uitspansel, d.i. de tweede hemel, zon, maan en sterren, de eerste hemel vindt men aan deze zijde van het uitspansel, hetwelk over de aarde als een gordijn is uitgestrekt als een dek over een tent is uitgespannen. (Psalm. 104:2)
  
  
-9. En God, voortgaande in Zijn ordenende werkzaamheid en zich tot de wateren op de aarde wendende, zei: a) Dat de wateren van onder de hemel in een plaats vergaderd worden en dat het droge gezien worde. En het was alzo. 1) 
+!!! quote ""
+
+    9. En God, voortgaande in Zijn ordenende werkzaamheid en zich tot de wateren op de aarde wendende, zei: a) Dat de wateren van onder de hemel in een plaats vergaderd worden en dat het droge gezien worde. En het was alzo. 1) 
  
 a) Job 26:10; 38:8; Psalm. 24:2; 33:7; 136:6. 
  
 1)  Zo verzamelde het water zich in de afgesloten bewaarplaatsen, zodat het niet meer de hele aarde overstroomde. (Job 38:8-11; Psalm. 104:6-9 ). Wellicht door ontzettende beweging, wellicht door onderaards vuur ontstond de diepte en vormden zich de hoogten van de aarde. De onbewerktuigde natuur werd gevormd; de grondslag en bodem van alle latere gewrochten werd gelegd. 
  
  
-10. En God noemde het droge aarde, en de vergadering van de wateren, niet alleen de eigenlijke zee, maar ook het water in rivieren en meren, noemde Hij met een gemeenschappelijke naam: zeeën. En God zag dat het goed was. 1) De reeds op de tweede dag begonnen scheiding van de wateren was nu voltooid en de aarde had naar haar bestanddelen, oceaan en vast land, de bestemde gedaante verkregen. 
+!!! quote ""
+
+    10. En God noemde het droge aarde, en de vergadering van de wateren, niet alleen de eigenlijke zee, maar ook het water in rivieren en meren, noemde Hij met een gemeenschappelijke naam: zeeën. En God zag dat het goed was. 1) De reeds op de tweede dag begonnen scheiding van de wateren was nu voltooid en de aarde had naar haar bestanddelen, oceaan en vast land, de bestemde gedaante verkregen. 
  
 1)  Dit woord des Heren, was op de tweede dag niet vernomen, omdat het werk, op die dag begonnen, eerst op deze dag was voltooid. Daarom klinkt het zo straks nog eenmaal. 
  
 Deze uitdrukking is het teken van de voltooiing, dat God zijn werk openstelt, waardoor het bestaan voor en door God bevestigd is. 
  
-11. En God zei nog een tweede scheppingswoord op deze dag; dat de aarde uitschiete grasscheutjes, kruid zaad zaaiende, vruchtbaar geboomte, dragende vrucht naar zijn aard, welks zaad daarin zij op de aarde. 1) En het was alzo.
+!!! quote ""
+
+    11. En God zei nog een tweede scheppingswoord op deze dag; dat de aarde uitschiete grasscheutjes, kruid zaad zaaiende, vruchtbaar geboomte, dragende vrucht naar zijn aard, welks zaad daarin zij op de aarde. 1) En het was alzo.
  
  
 1) Welk een orde in het hele werk van God! Hij begint met het kleinere en klimt steeds tot het grotere op!. 
