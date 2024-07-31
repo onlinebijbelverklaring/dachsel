@@ -1,6 +1,6 @@
 ## DE VIJF BOEKEN VAN MOZES. 
 
-Pentateuch. 
+_Pentateuch._ 
   
 Dit eerste gedeelte der Heilige Schrift wordt door de Hebreeën, Ha-Thora, d.i. de Wet (of ook wel Safer Ha-Thora d.i. het Wetboek), en in de vertaling van de "Zeventig" (Septuaginta) Pentateuchos d.i. het vijfdelige boek genaamd. Het vormt één afgerond geheel, beginnende met de schepping van de wereld en eindigende met de dood van Mozes, de Middelaar van het Oude Verbond. 
   
