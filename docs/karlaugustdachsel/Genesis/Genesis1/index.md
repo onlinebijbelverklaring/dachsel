@@ -3,7 +3,7 @@ God schept in den beginne hemel en aarde, doch laat vooreerst de aarde nog ongev
  
 ***1\. In den beginne, dat is, toen de tijd naar Gods welbehagen aanving 1) schiep 2) God 3) door middel van het Woord, dat in den beginne bij Hem was, Johannes 1:1-3; Col. 1:15, 16; de hemel 4) en de aarde. 5) a)***
  
-a)Psalm 33:6; 89:12; 136:5 Hand. 14:15; 17:24 Hebr. 11:3 
+a)Psalm 33:6; 89:12; 136:5, Handelingen 14:15; 17:24, Hebreeen 11:3 
 
 1) Wat vóór dit begin was, is de eeuwigheid. Vóór dit begin was er geen tijd, gelijk er eens geen tijd meer zal zijn (Openbaring. 10:6). Nu ontstaat het begrensde; bij de wording van het stof is het begin van de tijd. De Engelen zijn in den beginne geschapen, want zij zijn niet eeuwig, het Woord was in den beginne (Johannes 1:1) en is dus eeuwig. 
  
@@ -84,7 +84,7 @@ Zo is onze zondag reeds gewijd door de schepping van het licht.
  
 ***6\. a) En God zei, toen het licht in de plaats van de duisternis was getreden, daar zij een uitspansel 1) in het midden van de wateren; en dat make scheiding tussen wateren en wateren. Wij lezen hier de schepping van onze dampkring, welke de wateren boven ons in de wolken ophoudt, totdat ze de dampkring te zwaar geworden, als regen neerdalen.***
  
-a) Psalm 104:2; 136:5; 148:4; Spreuken 8:28.
+a) Psalm 104:2; 136:5; 148:4; Spreuken 8:28
  
 1) Sommige oud-Joodse en oud-Christelijke schrijvers vertalen het woord door firmament (firmamentum). Ook de Septuaginta gebruikt het woord stere, het woord "firmamentum" én het woord stere, duiden iets vast aan. Het Hebreeuwse woord geeft echter niets anders te kennen, dan een wijduitgespannen ruimte. Calvijn tekent bij deze woorden o.a. aan: Wel weten wij, dat de regen op natuurlijke wijze ontstaat, maar de zondvloed toont genoegzaam, hoe door de onstuimigheid van de wolken deze overweldig zou worden, als de sluizen van de hemelen niet door Gods hand gesloten waren. 
  
@@ -92,7 +92,7 @@ a) Psalm 104:2; 136:5; 148:4; Spreuken 8:28.
 ***7\. En God maakte dat uitspansel; ingevolge Zijn zo-even uitgesproken scheppingswoord ontstond het, en Hij maakte scheiding tussen de wateren die a) onder het uitspansel zijn, en tussen de wateren b) die boven het uitspansel 1) zijn. En het was alzo, gelijk God Vs. 6 bevolen had.***
  
  
-a) Psalm 33:7; 136:6 Spreuken 8:24 
+a) Psalm 33:7; 136:6, Spreuken 8:24 
 
 b) Psalm 148:4 
  
@@ -106,7 +106,7 @@ b) Psalm 148:4
  
 ***9\. En God, voortgaande in Zijn ordenende werkzaamheid en zich tot de wateren op de aarde wendende, zei: a) Dat de wateren van onder de hemel in een plaats vergaderd worden en dat het droge gezien worde. En het was alzo. 1)***
  
-a) Job 26:10; 38:8; Psalm 24:2; 33:7; 136:6. 
+a) Job 26:10; 38:8, Psalm 24:2; 33:7; 136:6
  
 1)  Zo verzamelde het water zich in de afgesloten bewaarplaatsen, zodat het niet meer de hele aarde overstroomde. (Job 38:8-11; Psalm 104:6-9). Wellicht door ontzettende beweging, wellicht door onderaards vuur ontstond de diepte en vormden zich de hoogten van de aarde. De onbewerktuigde natuur werd gevormd; de grondslag en bodem van alle latere gewrochten werd gelegd. 
  
@@ -143,7 +143,7 @@ Als God, de Heere, leven schept, dan legt Hij daarin tevens de macht om leven vo
 ***14\. En God, op de vierde morgen tot het werk van de eerste dag terugkerende, om dat verder te voltooien, zei: a) Dat er lichten zijn in het uitspansel des hemels, 1)om scheiding te maken tussen de dag en tussen de nacht, en dat zij zijn tot tekenen, 2) tot blijvende, zichtbare getuigen aan de hemel van de hoogste Majesteit Gods, en tot gezette tijden, 3) tot aanwijzing van de verschillende feestgetijden, tot bepaling van dag, maand en jaar, en tot dagen en jaren!***
  
  
-a) Psalm 8:4 Psalm 104:19 Psalm 136:7 Sir. 43 
+a) Psalm 8:4, Psalm 104:19, Psalm 136:7 
  
 1) Gelijk het eerste drietal dagen, zo begint God, de Heere ook het tweede drietal met het licht. Is het niet, om daardoor duidelijk te doen verstaan, dat Hij het Licht is?. 
  
@@ -154,12 +154,12 @@ a) Psalm 8:4 Psalm 104:19 Psalm 136:7 Sir. 43
  
 ***15\. a) En dat zij zijn tot lichten in het uitspansel van de hemel, om licht te geven op de aarde 1). En het was alzo.***
  
-a) Deuteronomium. 4:19 Jeremia 31:35 
+a) Deuteronomium 4:19, Jeremia 31:35 
  
 1) Het op de eerste dag door God geschapen licht, wordt nu verbonden aan de hemellichamen; dag en nacht vroeger bepaald, door het uitzetten en samentrekken van de lichtstof, worden nu door deze geregeld. 
  
  
-***16\. God dan maakte, (wellicht uit de wateren boven de hemelen) (Psalm 148:4), die twee grote lichten. 1) In betrekking op de zo-even genoemde bestemming, namelijk om de aarde te verlichten, zijn zon en maan werkelijk grote lichten, dat grote licht, de zon, tot heerschappij van de dag en dat kleine, kleinere, in vergelijking tot de zon, tot heerschappij van de nacht (Psalm 136:7-9 Jer.31:35 ), ook de sterren. 2)***
+***16\. God dan maakte, (wellicht uit de wateren boven de hemelen) (Psalm 148:4), die twee grote lichten. 1) In betrekking op de zo-even genoemde bestemming, namelijk om de aarde te verlichten, zijn zon en maan werkelijk grote lichten, dat grote licht, de zon, tot heerschappij van de dag en dat kleine, kleinere, in vergelijking tot de zon, tot heerschappij van de nacht (Psalm 136:7-9 Jeremia 31:35 ), ook de sterren. 2)***
  
  
 1) De hemeltekenen worden hier "lichten" genoemd, daar de Heere zich schikt naar de mens, voor wie zij werkelijk lichten zijn. 
@@ -173,7 +173,7 @@ a) Deuteronomium. 4:19 Jeremia 31:35
 Het uitspansel, waaraan zij geplaatst zijn, is hier de vaste kracht, die hen op hun banen houdt, zodat zij niet in botsing komen met de aarde, en die de wetenschap centraalkrachten noemt. (Middelpuntzoekende en vliedende krachten) 
  
  
-***18\. En om te heersen op de dag, en in de nacht, en om scheiding te maken tussen het licht en tussen de duisternis (Psalm 104:20-24, Jer.31:35) 1) En God zag dat het goed was.***
+***18\. En om te heersen op de dag, en in de nacht, en om scheiding te maken tussen het licht en tussen de duisternis (Psalm 104:20-24, Jeremia 31:35) 1) En God zag dat het goed was.***
  
  
 1) Hoe dwaas is het ze te aanbidden en te dienen (Deuteronomium. 4:19), daar zij bestemd zijn, om de aarde en de mens te dienen. "De Schrift spreekt van de hemellichten naar de diensten, die zij de aarde en de mens moesten bewijzen, niet naar hetgeen zij op zichzelf zijn,
@@ -242,7 +242,7 @@ God schept de mens naar Zijn beeld, man en vrouw, en zet daardoor de kroon op he
 ***27\. En God schiep op een wijze, die in hoofdstuk 2:7 vv. uitvoeriger verhaald zal worden, de mens a) naar Zijn beeld, 1) volkomen naar lichaam en ziel; als een beeld van Zijn eigen goddelijke heerlijkheid naar het beeld van God schiep Hij hem, 2) man en vrouw b) schiep Hij ze.***
  
  
-a.Genesis 5:1; 9:6 1 Cor. 11:7; Eh. 4:24 MATTHEUS. 19:4 
+a) Genesis 5:1; 9:6, 1 Korinthe 11:7, Efeze 4:24, Mattheus 19:4 
  
  
 1) Hier verheft zich de rede tot een jubelzang; voor het eerst ontmoeten zij hier het parallellisme (evenwijdigheid) van de leden, die tot het wezen van de Hebreeuwse poëzie behoort (2 Samuel 1:27), en wel zijn er drie parallelle leden, gelijk er drie personen in het raadsbesluit (Vs. 26) "Laat ons enz." verborgen liggen. 
@@ -263,7 +263,7 @@ De heerlijkheid van de mens boven alle schepselen bestond ook wel in zijn lichaa
  
 ***29\. En God zei: ziet, a) Ik heb u al het zaad zaaiende kruid gegeven; dat op de gehele aarde is, en alle geboomte, in hetwelk zaad zaaiende boomvrucht is: het zij u tot spijze! 1) Het zaad zaaiende kruid en de vruchtdragende bomen, Vs. 11,12, zullen niet alleen zijn tot eigen voortplanting, maar zullen u tevens voedsel geven. De Schepper wordt hier Onderhouder.***
   
-a) Genesis 9:3 Psalm 104:14,15 
+a) Genesis 9:3, Psalm 104:14,15 
   
 1) God, die de bestemming heeft aangewezen (Vs.  28), geeft alzo wat de mens daartoe behoeft. Hij, die roept tot de gevallen mens: "Bekeer u, geloof, heb mij lief," onthoudt het brood des levens niet; waartoe Hij u, o Christen! roepen moge, weet, die u geroepen heeft is getrouw. 
  
@@ -277,7 +277,7 @@ a) Genesis 9:3 Psalm 104:14,15
 ***31\. En God, wiens blik reeds tot hiertoe op elk volbracht werk met welgevallen gerust had, zag thans, nu het geheel voor Hem stond in de schoonste eenheid en als een volkomen meesterstuk, waaraan met de laatste schepping de kroon was opgezet, al wat Hij gemaakt had, en ziet, a) het was nu niet meer, elk als afzonderlijk deel, maar in vereniging met de andere delen, en vooral om de mens, die heldere spiegel van Zijn goddelijke almacht, goedheid en wijsheid, in de hoogste mate of zeer goed. 1) Toen was het avond geweest en het was morgen geweest, de zesde dag. 2)***
  
  
-a) Deuteronomium. 32:4 Mark. 7:37 
+a) Deuteronomium 32:4, Markus 7:37 
  
 1) God heeft, terwijl Hij de wereld schept, de aarde tot doel en in de aarde de mens en in de mens Israël, en in dit volk van het heil de voleindiging van al het geschapene. De wereldgeschiedenis ligt niet buiten maar binnen de van de eeuwigheid uitlopende en in de eeuwigheid teruglopende kring van de geschiedenis van het heil; daarom staat zij aan de spits van de Thora (wet), het grondboek van de geschiedenis van het heil. 
  
