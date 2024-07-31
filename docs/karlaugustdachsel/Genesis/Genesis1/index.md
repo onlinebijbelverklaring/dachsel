@@ -89,7 +89,7 @@ a) Psalm 104:2; 136:5; 148:4; Spreuken 8:28.
 1) Sommige oud-Joodse en oud-Christelijke schrijvers vertalen het woord door firmament (firmamentum). Ook de Septuaginta gebruikt het woord stere, het woord "firmamentum" én het woord stere, duiden iets vast aan. Het Hebreeuwse woord geeft echter niets anders te kennen, dan een wijduitgespannen ruimte. Calvijn tekent bij deze woorden o.a. aan: Wel weten wij, dat de regen op natuurlijke wijze ontstaat, maar de zondvloed toont genoegzaam, hoe door de onstuimigheid van de wolken deze overweldig zou worden, als de sluizen van de hemelen niet door Gods hand gesloten waren. 
  
  
-***7\. En God maakte dat uitspansel; ingevolge Zijn zo-even uitgesproken scheppingswoord ontstond het, en Hij maakte scheiding tussen de wateren die a) onder het uitspansel zijn, en tussen de wateren b) die boven het uitspansel 1) zijn. En het was alzo, gelijk God Vs. 6 bevolen had.*** 
+***7\. En God maakte dat uitspansel; ingevolge Zijn zo-even uitgesproken scheppingswoord ontstond het, en Hij maakte scheiding tussen de wateren die a) onder het uitspansel zijn, en tussen de wateren b) die boven het uitspansel 1) zijn. En het was alzo, gelijk God Vs. 6 bevolen had.***
  
  
 a) Psalm 33:7; 136:6 Spreuken 8:24 
@@ -127,7 +127,7 @@ Dit betekent, dat niet slechts toen de kruiden en bomen geschapen zijn, maar ook
 Daarin ligt het onderscheid tussen het Godswerk en het mensenwerk, dat het eerste schoner wordt, hoe nauwkeuriger men het kennen leert; het schoonste werk van de mensen wordt steeds grover, als het oog zich sterker wapent. Maak, mens, die u beroemt op wetenschap en kunst, één plantje, één grasscheutje! Al wat gij vormt is dood, het mist groeikracht, mist de macht tot voortteling. 
  
  
-***12\. En de aarde bracht voort naar het bevel van de Heere grasscheutjes, kruid zaad zaaiende naar zijn aard en vruchtdragend geboomte, welks zaad daarin was, naar zijn aard. 1) En God liet ook op het tweede werk van deze dag met welgevallen zijn oog rusten en zag dat het goed was.*** 
+***12\. En de aarde bracht voort naar het bevel van de Heere grasscheutjes, kruid zaad zaaiende naar zijn aard en vruchtdragend geboomte, welks zaad daarin was, naar zijn aard. 1) En God liet ook op het tweede werk van deze dag met welgevallen zijn oog rusten en zag dat het goed was.***
  
  
 1) Wonder van God! In één mens schiep God alle mensen, in één boom alle bomen, in één gewas alle gewassen van deze soort, die er zijn zouden tot aan het einde van de wereld. 
@@ -152,14 +152,14 @@ a) Psalm 8:4 Psalm 104:19 Psalm 136:7 Sir. 43
 3) Jaargetijden, als ook termijnen voor het verloop van het leven van planten, dieren en mensen. 
  
  
-***15\. a) En dat zij zijn tot lichten in het uitspansel van de hemel, om licht te geven op de aarde 1). En het was alzo.*** 
+***15\. a) En dat zij zijn tot lichten in het uitspansel van de hemel, om licht te geven op de aarde 1). En het was alzo.***
  
 a) Deuteronomium. 4:19 Jeremia 31:35 
  
 1) Het op de eerste dag door God geschapen licht, wordt nu verbonden aan de hemellichamen; dag en nacht vroeger bepaald, door het uitzetten en samentrekken van de lichtstof, worden nu door deze geregeld. 
  
  
-***16\. God dan maakte, (wellicht uit de wateren boven de hemelen) (Psalm 148:4), die twee grote lichten. 1) In betrekking op de zo-even genoemde bestemming, namelijk om de aarde te verlichten, zijn zon en maan werkelijk grote lichten, dat grote licht, de zon, tot heerschappij van de dag en dat kleine, kleinere, in vergelijking tot de zon, tot heerschappij van de nacht (Psalm 136:7-9 Jer.31:35 ), ook de sterren. 2) ***
+***16\. God dan maakte, (wellicht uit de wateren boven de hemelen) (Psalm 148:4), die twee grote lichten. 1) In betrekking op de zo-even genoemde bestemming, namelijk om de aarde te verlichten, zijn zon en maan werkelijk grote lichten, dat grote licht, de zon, tot heerschappij van de dag en dat kleine, kleinere, in vergelijking tot de zon, tot heerschappij van de nacht (Psalm 136:7-9 Jer.31:35 ), ook de sterren. 2)***
  
  
 1) De hemeltekenen worden hier "lichten" genoemd, daar de Heere zich schikt naar de mens, voor wie zij werkelijk lichten zijn. 
@@ -167,13 +167,13 @@ a) Deuteronomium. 4:19 Jeremia 31:35
 2) Hemeltekenen! Wat is uw Schepper groot. Ons roept gij toe: "Buigt u neer en aanbidt." (Psalm 8:4-5) (Psalm 19). 
  
  
-***17\. En God stelde (letterlijk: gaf) ze in het uitspansel van de hemel, om licht te geven op de aarde. ***
+***17\. En God stelde (letterlijk: gaf) ze in het uitspansel van de hemel, om licht te geven op de aarde.***
  
  
 Het uitspansel, waaraan zij geplaatst zijn, is hier de vaste kracht, die hen op hun banen houdt, zodat zij niet in botsing komen met de aarde, en die de wetenschap centraalkrachten noemt. (Middelpuntzoekende en vliedende krachten) 
  
  
-***18\. En om te heersen op de dag, en in de nacht, en om scheiding te maken tussen het licht en tussen de duisternis (Psalm 104:20-24, Jer.31:35) 1) En God zag dat het goed was. ***
+***18\. En om te heersen op de dag, en in de nacht, en om scheiding te maken tussen het licht en tussen de duisternis (Psalm 104:20-24, Jer.31:35) 1) En God zag dat het goed was.***
  
  
 1) Hoe dwaas is het ze te aanbidden en te dienen (Deuteronomium. 4:19), daar zij bestemd zijn, om de aarde en de mens te dienen. "De Schrift spreekt van de hemellichten naar de diensten, die zij de aarde en de mens moesten bewijzen, niet naar hetgeen zij op zichzelf zijn,
@@ -184,14 +184,15 @@ vaste punten, waar zij tijden en plaatsen naar berekenen. God berekent blijkbaar
 De aarde is het Bethlehem van de wereld. Zoals Bethlehem de Heer en Heiland van de hele mensheid voortbrengt en het uitgangspunt, het centrum en het einddoel van de totale geschiedenis van de mensen betekent, het arme, kleine Bethlehem, zo heeft de kleine aarde, die niets is in het heelal, de plicht een betamelijke invloed uit te oefenen op de gang van de wereldgeschiedenis. Met andere woorden, de geschiedenis van de mensen, het in elkaar grijpen van de goddelijke heilsgedachte en de menselijke vrijheid is de geschiedenis van de wereld; en wanneer de ontwikkeling van de mensenwereld in het verzamelen van de verspreide mensheid en de uitverkorenen, hun doel bereikt hebben, dan kunnen wij zeggen dat wij aan onze plicht hebben voldaan, om nu als wedergekomenen in een nieuwe rechtvaardige mensenwereld te dienen in de Gods Koninkrijk. 
  
  
-***19\. Toen was het avond geweest, en het was morgen geweest, de vierde dag. ***
+***19\. Toen was het avond geweest, en het was morgen geweest, de vierde dag.***
  
  
-***20\. En God zei: Dat de wateren, welke nu op de bijzondere plaatsen verzameld waren, overvloedig voortbrengen een gewemel van levende zielen, en het gevogelte vliege boven de aarde in het uitspansel van de hemel! ***
+***20\. En God zei: Dat de wateren, welke nu op de bijzondere plaatsen verzameld waren, overvloedig voortbrengen een gewemel van levende zielen, en het gevogelte vliege boven de aarde in het uitspansel van de hemel!***
  
 De Lutherse vertaling gaat uit van het onder de kerkvaders wijd verbreide idee, dat tegelijk met de vissen ook de vogels uit het water ontsproten zijn; dit is echter in tegenspraak met Genesis 2:19, waar geschreven staat dat zij uit de aarde geformeerd zijn. Over de bouwstof van de vogels is daarom niets met zekerheid vast te stellen. 
  
-***21\. En God schiep de grote walvissen 1) en alle levende, wriemelende ziel, welke de wateren overvloedig voortbrachten, naar haren aard, en alle gevleugeld gevogelte naar zijn aard. 2) En God zag dat het goed was. ***
+
+***21\. En God schiep de grote walvissen 1) en alle levende, wriemelende ziel, welke de wateren overvloedig voortbrachten, naar haren aard, en alle gevleugeld gevogelte naar zijn aard. 2) En God zag dat het goed was.***
  
 1) Het oorspronkelijk woord duidt elk zeemonster aan. 
  
@@ -200,19 +201,20 @@ De Lutherse vertaling gaat uit van het onder de kerkvaders wijd verbreide idee, 
 Vissen en vogels zijn op één dag geschapen; er is overeenkomst tussen deze beide, gelijk lucht en wolken verwant zijn; het schubbenpantser en het verenkleed, de vinnen en de vleugels hebben overeenkomst, die ook in het inwendige bestaat (bij de verdeling van het bloed) 
  
  
-***22\. En God zegende ze 1), zeggende: nu niet van hen, maar tot hen sprekende, gelijk de aard van het zegenspreken ook over het redeloze meebrengt: a) zijt vruchtbaar en vermenigvuldigt en vervult de wateren in de zeeën; en het gevogelte vermenigvuldige op de aarde! ***
+***22\. En God zegende ze 1), zeggende: nu niet van hen, maar tot hen sprekende, gelijk de aard van het zegenspreken ook over het redeloze meebrengt: a) zijt vruchtbaar en vermenigvuldigt en vervult de wateren in de zeeën; en het gevogelte vermenigvuldige op de aarde!***
  
 a) Genesis 8:17 
  
 1) Als God zegent, verzekert Hij, die getrouw is, het schepsel van Zijn neerbuigende liefde en welwillende gunst. Dat is iets groots. Want aan de zegen van de Heere is alles gelegen. Met welk schallend lied van dankbaarheid zal het pas geschapen vogelenleger op die zegenspreuk van de Schepper geantwoord hebben. En zult gij, o mensenkind, dan uw Heer en Schepper niet loven met het voorbedachte lied?. 
  
  
-***23\. Toen was het avond geweest en het was morgen geweest, de vijfde dag.*** 
+***23\. Toen was het avond geweest en het was morgen geweest, de vijfde dag.***
  
-***24\. En God, nu op de zesde dag van de dieren in water en lucht opklimmende tot een hogere soort, de dieren op het land, en daarmee tegelijk de tweede helft van het werk van deze dag (Vs. 11-13) aanvaardende, zei: De aarde brengen levende zielen voort, naar haar aard, vee, dat tam en tot onmiddellijke dienst aan de mensen bestemd is en kruipend en wild gedierte der aarde, kleiner gedierte, dat op en in de aardbodem zich beweegt, en alles, wat de wildernissen en bossen vervult en zich niet aan de mens gewent, naar zijn aard! En het was alzo. ***
+
+***24\. En God, nu op de zesde dag van de dieren in water en lucht opklimmende tot een hogere soort, de dieren op het land, en daarmee tegelijk de tweede helft van het werk van deze dag (Vs. 11-13) aanvaardende, zei: De aarde brengen levende zielen voort, naar haar aard, vee, dat tam en tot onmiddellijke dienst aan de mensen bestemd is en kruipend en wild gedierte der aarde, kleiner gedierte, dat op en in de aardbodem zich beweegt, en alles, wat de wildernissen en bossen vervult en zich niet aan de mens gewent, naar zijn aard! En het was alzo.***
  
  
-***25. En God maakte het wild gedierte van de aarde naar zijn aard, en het vee naar zijn aard, en al het kruipend gedierte van de aardbodem naar zijn aard. En God zag dat het goed was. 1) ***
+***25. En God maakte het wild gedierte van de aarde naar zijn aard, en het vee naar zijn aard, en al het kruipend gedierte van de aardbodem naar zijn aard. En God zag dat het goed was. 1)***
  
  
 1) Water en lucht, aarde en stof, het is nu alles met leven vervuld. Overal beweegt het zich en wemelt het. Nog is het niet zeer goed, nog ontbreekt er iets, de eenheid en het doel van dit alles. Het is alles blijkbaar ingericht, om een woonplaats voor een hoger schepsel te zijn en hem als heer te dienen. Maar wat nog ontbreekt, het komt. Hij komt, die deze welgetooide en welverzorgde woonplaats als zijn woonplaats inneemt, de mens. 
@@ -225,7 +227,7 @@ Klaarblijkelijk wordt het aantal scheppingsdagen in twee helften gedeeld, elk va
 God schept de mens naar Zijn beeld, man en vrouw, en zet daardoor de kroon op het werk van de zes dagen. 
  
  
-***26\. En God, thans niet meer als tot hier toe eenvoudig bevelend sprekende, maar met het Woord, door hetwelk Hij alle dingen heeft gemaakt en met de Geest, die levenskrachten meegedeeld en leven gewekt heeft, in bijzonder overleg tredende, zei op deze dag, de vrijdag: 1) Laat ons mensen maken, naar ons beeld, 2) naar onze gelijkenis, vrije, zichzelf bewuste persoonlijke wezens, die de heiligheid en zaligheid van het goddelijke leven in zich dragen, en dat zij heerschappij hebben over de vissen van de zee, en over het gevogelte van de hemel, en over het vee, en over de gehele aarde, en over al het kruipend gedierte, dat op de aarde kruipt. 3) ***
+***26\. En God, thans niet meer als tot hier toe eenvoudig bevelend sprekende, maar met het Woord, door hetwelk Hij alle dingen heeft gemaakt en met de Geest, die levenskrachten meegedeeld en leven gewekt heeft, in bijzonder overleg tredende, zei op deze dag, de vrijdag: 1) Laat ons mensen maken, naar ons beeld, 2) naar onze gelijkenis, vrije, zichzelf bewuste persoonlijke wezens, die de heiligheid en zaligheid van het goddelijke leven in zich dragen, en dat zij heerschappij hebben over de vissen van de zee, en over het gevogelte van de hemel, en over het vee, en over de gehele aarde, en over al het kruipend gedierte, dat op de aarde kruipt. 3)***
  
  
 1) En op dezelfde dag wilde Hij daarna een nog veel groter raadsbesluit ten uitvoer brengen, denk aan de Goede Vrijdag! waarom Hij, hoewel het hem later berouwen zou, wat Hij thans Zich voornam (Genesis 6:6-7), het evenwel ondernam, namelijk het scheppen van de mens. 
@@ -237,7 +239,7 @@ God schept de mens naar Zijn beeld, man en vrouw, en zet daardoor de kroon op he
 3) Dit gebied, hoe groot op zich zelf, is echter klein, in vergelijking van het geheel. Daarbij gaat deze heerschappij enkel over het uitwendige van die dingen, welke in het bereik van de mensen zijn, zodat de meeste en gewichtigste zaken van de mens onafhankelijk zijn. Trouwens wat buiten ons bereik is, geschiedt doorgaans het best. De omloop van het bloed, bijvoorbeeld, hoe geregeld is hij! De afwisseling van dag en nacht, de bewegingen van de zee, de werkingen van de lucht, de wording en de dood van de schepselen zijn zaken, te groot voor de mens; hij heeft aan het bestuur over de kleinere dingen genoeg. 
  
  
-***27\. En God schiep op een wijze, die in hoofdstuk 2:7 vv. uitvoeriger verhaald zal worden, de mens a) naar Zijn beeld, 1) volkomen naar lichaam en ziel; als een beeld van Zijn eigen goddelijke heerlijkheid naar het beeld van God schiep Hij hem, 2) man en vrouw b) schiep Hij ze. ***
+***27\. En God schiep op een wijze, die in hoofdstuk 2:7 vv. uitvoeriger verhaald zal worden, de mens a) naar Zijn beeld, 1) volkomen naar lichaam en ziel; als een beeld van Zijn eigen goddelijke heerlijkheid naar het beeld van God schiep Hij hem, 2) man en vrouw b) schiep Hij ze.***
  
  
 a.Genesis 5:1; 9:6 1 Cor. 11:7; Eh. 4:24 MATTHEUS. 19:4 
@@ -250,7 +252,7 @@ De heerlijkheid van de mens boven alle schepselen bestond ook wel in zijn lichaa
 2) Merk het wel op, o mens! want gij zijt het, voor wie dat alles vertaald wordt, en gedenk nu waarvan gij vervallen zijt, maar wend u ook gelovig tot Hem, door wie gij vernieuwd wordt. (Col. 3:10). 
  
  
-***28\. En God zegende hen, en God zei tot hen: Weest vruchtbaar en vermenigvuldigt, en vervult de aarde en onderwerpt haar door vlijtige en verstandige bebouwing, alsmede door altijd dieper navorsen van de natuurkrachten, want Ik heb ze u gegeven, (Psalm 115:16), en hebt heerschappij over de vissen van de zee en over het gevogelte van de hemel, en over al het gedierte, dat op de aarde kruipt! 1) 2) ***
+***28\. En God zegende hen, en God zei tot hen: Weest vruchtbaar en vermenigvuldigt, en vervult de aarde en onderwerpt haar door vlijtige en verstandige bebouwing, alsmede door altijd dieper navorsen van de natuurkrachten, want Ik heb ze u gegeven, (Psalm 115:16), en hebt heerschappij over de vissen van de zee en over het gevogelte van de hemel, en over al het gedierte, dat op de aarde kruipt! 1) 2)***
  
  
 1) Wat in de raad van God lag, Vs. 26, moest over de mens worden gesproken, om het voor hem werkelijkheid te doen worden; dat woord werd gesproken. Zo is het ook met de raad van de verlossing. Gij vindt mijn ziel! geen vrede dan op het Gods Woord: "in Christus is ook uw heil!". 
@@ -259,20 +261,20 @@ De heerlijkheid van de mens boven alle schepselen bestond ook wel in zijn lichaa
 2) God is een God van orde, ook in het kleine. Hij geeft heerschappij in dezelfde orde, als waarin Hij de verschillende gedierten geschapen heeft. 
  
  
-***29\. En God zei: ziet, a) Ik heb u al het zaad zaaiende kruid gegeven; dat op de gehele aarde is, en alle geboomte, in hetwelk zaad zaaiende boomvrucht is: het zij u tot spijze! 1) Het zaad zaaiende kruid en de vruchtdragende bomen, Vs. 11,12, zullen niet alleen zijn tot eigen voortplanting, maar zullen u tevens voedsel geven. De Schepper wordt hier Onderhouder. ***
+***29\. En God zei: ziet, a) Ik heb u al het zaad zaaiende kruid gegeven; dat op de gehele aarde is, en alle geboomte, in hetwelk zaad zaaiende boomvrucht is: het zij u tot spijze! 1) Het zaad zaaiende kruid en de vruchtdragende bomen, Vs. 11,12, zullen niet alleen zijn tot eigen voortplanting, maar zullen u tevens voedsel geven. De Schepper wordt hier Onderhouder.***
   
 a) Genesis 9:3 Psalm 104:14,15 
   
 1) God, die de bestemming heeft aangewezen (Vs.  28), geeft alzo wat de mens daartoe behoeft. Hij, die roept tot de gevallen mens: "Bekeer u, geloof, heb mij lief," onthoudt het brood des levens niet; waartoe Hij u, o Christen! roepen moge, weet, die u geroepen heeft is getrouw. 
  
  
-***30\. Maar, aan al het gedierte van de aarde en aan al het gevogelte van de hemel en aan al het kruipend gedierte op de aarde, waarin een levende ziel is, heb Ik al het groene kruid tot spijze gegeven, evenals aan u veld- en boomvruchten, granen en vruchten, zo aan hen alle kruid en gras (Vs. 11-12). 1) En het was alzo. ***
+***30\. Maar, aan al het gedierte van de aarde en aan al het gevogelte van de hemel en aan al het kruipend gedierte op de aarde, waarin een levende ziel is, heb Ik al het groene kruid tot spijze gegeven, evenals aan u veld- en boomvruchten, granen en vruchten, zo aan hen alle kruid en gras (Vs. 11-12). 1) En het was alzo.***
  
  
 1) Alzo had er in de eerste tijden van de zichtbare wereld nergens moord of slachting plaats, nergens werd een bloeddorstig of verscheurend dier gevonden; planten waren de enige spijzen voor mensen en dieren Jesaja 11:6 vv.). Eerst later veranderde dit toen met de zonde ook de lichaamsverzwakking en de dood in de wereld kwam; na de zondvloed wordt uitdrukkelijk het vlees eten aan de mens toegestaan (Genesis 9:3). Oerstedt, de beroemde ontdekker van het elektromagnetisme ontkent deze zuivere toestand van de schepselen, en wijst erop, dat men aan beenderen van dieren uit de oorspronkelijke wereld duidelijk sporen van ziekte gevonden heeft, en dat ook andere tekenen aanduiden, hoe reeds toen dieren andere levende dieren verslonden. Maar evenals het lichaam van de mens na de val een wezenlijke verandering onderging, zo heeft zonder twijfel een dergelijke omkering ook in dierenwereld plaatsgehad. 
  
  
-***31\. En God, wiens blik reeds tot hiertoe op elk volbracht werk met welgevallen gerust had, zag thans, nu het geheel voor Hem stond in de schoonste eenheid en als een volkomen meesterstuk, waaraan met de laatste schepping de kroon was opgezet, al wat Hij gemaakt had, en ziet, a) het was nu niet meer, elk als afzonderlijk deel, maar in vereniging met de andere delen, en vooral om de mens, die heldere spiegel van Zijn goddelijke almacht, goedheid en wijsheid, in de hoogste mate of zeer goed. 1) Toen was het avond geweest en het was morgen geweest, de zesde dag. 2) ***
+***31\. En God, wiens blik reeds tot hiertoe op elk volbracht werk met welgevallen gerust had, zag thans, nu het geheel voor Hem stond in de schoonste eenheid en als een volkomen meesterstuk, waaraan met de laatste schepping de kroon was opgezet, al wat Hij gemaakt had, en ziet, a) het was nu niet meer, elk als afzonderlijk deel, maar in vereniging met de andere delen, en vooral om de mens, die heldere spiegel van Zijn goddelijke almacht, goedheid en wijsheid, in de hoogste mate of zeer goed. 1) Toen was het avond geweest en het was morgen geweest, de zesde dag. 2)***
  
  
 a) Deuteronomium. 32:4 Mark. 7:37 
